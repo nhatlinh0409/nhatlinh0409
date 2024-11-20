@@ -3,7 +3,7 @@
 - 🌱 I am currently studying computer science at the university of information technology.
 - 💞️ I am looking forward to new friends and new knowledge.
 - 📫 You can reach me by social network like Facebook, Instagram,... or email.
-- 😄 Pronouns:
+- 😄 Pronouns:...
 - ⚡ Fun fact: I am an introvert but very fun-loving
 
 <!---
